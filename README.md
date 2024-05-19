@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @R-SriHarsha
 - 👀 I’m interested in exploring the world of technology
-- 🌱 I’m currently learning the programming and basic computer science
 - 📫 How to reach me ...connect on linked in-https://www.linkedin.com/in/rampalli-sri-harshavardhan-sastry-807193250
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact:Life becomes happy if we think logically.
